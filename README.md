@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @0xcrunchy
-- 👀 I’m interested in building cool things.
+- 👀 I’m interested in building cool things in brypto and tardfi.
 
 That's all.
 
